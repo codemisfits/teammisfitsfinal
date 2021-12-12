@@ -1,1 +1,1 @@
-# teammisfitsfinal
+#allows declarants to fills forms virtually and allows the ethics and integrity directorate under the ministry for presidential affairs instead of going to the offices. It will allow the EID to receive the declaration forms, analyse and verify the information.
